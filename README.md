@@ -1,2 +1,1 @@
-# subjectduolingo.github.io
-Ok, so yeah... i'm making a new respository where there are unblocked games, proxies, and some other random stuff that exist in the world of unblocking.
+# 𝕽𝖆𝖛𝖊𝖓'𝖘 𝖀𝖓𝖇𝖑𝖔𝖈𝖐𝖊𝖉 𝕲𝖆𝖒𝖊𝖘
