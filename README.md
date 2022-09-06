@@ -1,2 +1,2 @@
 # subjectduolingo.github.io
-a little place where every New's Sites come alive.
+Ok, so yeah... i'm making a new respository where there are unblocked games, proxies, and some other random stuff that exist in the world of unblocking.
